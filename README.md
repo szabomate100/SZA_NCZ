@@ -1,1 +1,1 @@
-# SZA_NCZ
+# sza_ncz
